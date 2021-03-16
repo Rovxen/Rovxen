@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rovxen
+- 👀 I’m interested in ... Coding in java, python etc. I love to make apps and webs
+- 🌱 I’m currently learning ... blockchain
+- 💞️ I’m looking to collaborate on ... making a cryto
+- 📫 How to reach me ... you can email me on rohan.jain4728@gmail.com
